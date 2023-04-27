@@ -1,2 +1,2 @@
-# Quike7-paginaJuan.github.io/
+# Quike7-paginaJuan
 Página de servicios de Abogados
